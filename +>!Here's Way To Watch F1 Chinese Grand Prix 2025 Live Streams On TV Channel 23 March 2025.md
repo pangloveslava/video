@@ -2,6 +2,10 @@ The Chinese Grand Prix returns to the Formula 1 calendar in 2025, with the Shang
 
 In Saturday's Sprint race, Lewis Hamilton earned his first win since moving to Ferrari, shaking off a poor debut that saw him finish just 10th. Can Hamilton mount a challenge this week?
 
+[🔴 GO LIVE==►► CLICK HERE TO WATCH LIVE](https://for-race-news-publish.blogspot.com/)
+
+[🔴 STREAMING==►► CLICK HERE TO WATCH LIVE](https://for-race-news-publish.blogspot.com/)
+
 Fans are expecting big things from the 2025 F1 season, and largely, they got what they wanted from the first race. Sure, Lando Norris winning wasn't a huge surprise, but we got competitive racing from an open field. And you get the feeling that there is a lot more to come. At least, that's what Lewis Hamilton will be hoping for.
 
 Mclaren's Lando Norris won the first race of the season, the Melbourne Grand Prix, overcoming the likes of defending champion Red Bull’s Max Verstappen and teammate George Russell.

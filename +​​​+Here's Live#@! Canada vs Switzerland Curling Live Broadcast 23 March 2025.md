@@ -2,6 +2,10 @@
 
 The stage is set for a thrilling showdown as defending champions Canada take on Switzerland in the gold medal game at the LGT World Women’s Curling Championship in Uijeongbu, Korea.
 
+[🔴 GO LIVE==►► CLICK HERE TO WATCH LIVE](https://true-gam-pas-all-here-now.blogspot.com/)
+
+[🔴 STREAMING==►► CLICK HERE TO WATCH LIVE](https://true-gam-pas-all-here-now.blogspot.com/)
+
 Switzerland won this tournament four times in a row before Canada unseated them a year ago. Can Silvana Tirinzoni lead them right back to the top of the summit?
 
 Team Homan secured their place in the championship match with a dramatic 6-5 extra-end victory over host nation South Korea, led by Eunji Gim. With Canada clinging to a one-point lead in the 10th end and without the hammer, Rachel Homan executed a stunning double takeout to force Korea to a single point, sending the match into an extra end. A crucial mistake by Gim in the final frame allowed Canada to claim victory and advance.

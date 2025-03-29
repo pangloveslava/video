@@ -1,6 +1,10 @@
 ## （ＬＩＶＥ>） North Queensland Cowboys vs Canberra Raiders Ｌｉｖｅ Ｓｔｒｅａｍｓ ＦｒＥＥ Ｃｏｖｅｒａｇｅ ＯＮ 29 March ２０２5 
 The North Queensland Cowboys, currently 16th on the 2025 NRL Premiership ladder, will take on the 8th-placed Canberra Raiders in the fourth round of the season this weekend.
 
+[🔴 GO LIVE==►► CLICK HERE TO WATCH LIVE](https://tinyurl.com/3ct64t5b)
+
+[🔴 STREAMING==►► CLICK HERE TO WATCH LIVE](https://tinyurl.com/3ct64t5b)
+
 While the Cowboys showed positive signs in the last match, defeats to Sea Eagles (42-12), Sharks (36-12), and Broncos (26-16) is concerning. This is a significant setback for a side with top-four ambitions, having reached the semifinals last year.
 
 Consistency has been an issue for the Cowboys - while they did make it to the Finals in 2024 by winning eight of their last ten games, they secured just one win through April and May. However, on the positive, they have won five of their last six meetings against their next opponents.
